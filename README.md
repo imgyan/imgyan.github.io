@@ -1,2 +1,2 @@
-# RajaYada00.github.io
+# imgyan.github.io
 Welcome to my portfolio
